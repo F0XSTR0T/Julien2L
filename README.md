@@ -1,4 +1,4 @@
-## 💫 About Me:
+## 🖖 About Me:
 🏫 Actuellement Coordinateur Logiciel à l'Université Côte d'Azur <br>I survived meetings that should have been an email.<br><br>👋 Ouvert aux proposition d'emploi.<br>⚡️Spécialisation : Front, avec une forte appétence pour le Back<br><br>🎓 Récemment formé au développement web et mobile chez Epitech<br><br>🌱 Je me détend en faisant des sites vitrines (personne n'est parfait)<br><br>🏨 / 👨🏼‍🍳 Ancien professionnel dans l'hôtellerie-restauration <br><br> 📧 : labatut.ju@gmail.com <br><br>
 
 ## 🌐 Socials:
